@@ -1,2 +1,2 @@
 # New project
-this project was new
+this project was new and unique.
